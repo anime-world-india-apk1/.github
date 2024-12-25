@@ -10,7 +10,7 @@
 ## What is Anime World India APK?
 Anime World India APK is a free streaming app designed for anime lovers in India. It brings a world of anime series and movies to your Android device. With multilingual support, users can enjoy dubbed and subtitled content in Hindi, Tamil, and Telugu. Whether you’re a fan of action-packed adventures or heartwarming romantic tales, this app caters to all anime genres.
 
-## Click Download: https://heyapks.com/anime-world-india.html 
+## Click Download:👉👉 https://heyapks.com/anime-world-india.html
 
 ## Key Features of Anime World India APK
 Here’s why Anime World India APK stands out among anime streaming apps:
